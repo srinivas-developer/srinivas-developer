@@ -1,0 +1,2 @@
+- Im a CX/CRM Developer
+- Code matters, nothing else ;)
